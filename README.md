@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShodowNK2000
+- 👋 Hi, I’m @ShadowNK2000
    I’m interested in IT field
    I’m currently learning coding and fundametals, also I am on my baby steps to mold my best version 
    I’m now on my 20's but i still working at company as accountant but low salary
